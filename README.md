@@ -4,7 +4,7 @@
 
 c/ra - ræ
 
-ᔕ/ma - mæ
+ᔕ/ma - mə
 
 ധ/te - tə
 
