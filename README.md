@@ -8,7 +8,7 @@ c/ra - ræ
 
 ധ/te - tə
 
-ᓗ/ru -  ru
+ᓗ/ru -  rʌ
 
 ᘐ/eh - [ɛ]
 
