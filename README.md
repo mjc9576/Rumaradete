@@ -22,6 +22,4 @@ c/ra - ræ
 
 U/so - səʊ
 
-◦ is treated as a space and ٠ is a pause like a comma or full-stop.
-
-⟞ is an explamation mark and ⟝ is a question mark, both being pronounced [tu] with their respective vocal changes applied.
+◦/٠/⟞/⟝/to tu
